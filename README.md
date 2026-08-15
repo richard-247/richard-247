@@ -7,4 +7,4 @@
 
 ### 🔗 LinkedIn
 
-[Meu LinkedIn](linkedin.com/in/nycollas-richard-pereira-dos-santos-8ba898426)
+[Meu LinkedIn](https://www.linkedin.com/in/nycollas-richard-pereira-dos-santos-8ba898426)
