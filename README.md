@@ -2,7 +2,7 @@
 
 ### 🎓 Formação
 
-- **Bacharelado em Ciência da Computação (cursando)** — Universidade Federal de Lavras (UFLA)
+- **Bacharelado em Ciência da Computação (2° período)** — Universidade Federal de Lavras (UFLA)
 - **Técnico em Informática Integrado ao Ensino Médio** — IFSULDEMINAS
 
 ### 🔗 LinkedIn
